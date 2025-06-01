@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: Gigalomaniac
 - ⚡ Fun fact: I'm trying to increase my focus through an extreme challenege of no music, meaning not even in the background of video games, anime, or youtube videos. So, I have only been playing rayman legends on mute, haven't watched anime, and only watch boring/unedited tutorial videos for the past [5 Days] 
 -->
-Here are some ideas to get you started:
+OOGA BOOGER
 
 - 🔭 I’m currently working on 2D animations for YT, an MMO starter zone in UE5 and modeling a Cathedral in Blender for it (all inspired by the prologue of FF14), and trying to do the splits for the first time. 
 - 🌱 I’m currently learning Blender, UE5, and how to animate in 2D.
